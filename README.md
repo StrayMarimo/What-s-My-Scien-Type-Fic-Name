@@ -1,1 +1,1 @@
-# What-s-My-Scien-Type-Fic-Name
+# What's My Scien-Type-Fic Name?
